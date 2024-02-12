@@ -1,1 +1,1 @@
-![](https://media.discordapp.net/attachments/498944170480893952/1205969605030445076/smugpot.gif?ex=65da4db7&is=65c7d8b7&hm=4c663762a6ec4e9231f2ec04382e52f7db643cb82bd379ae554c30cff22a311a&)
+![](https://media.discordapp.net/attachments/647966239188189199/1206437098350182400/computer.gif?ex=65dc011a&is=65c98c1a&hm=72eb1bea3d51d4a23ff9910bcbda0063e207632ddd9525e15788b20a22c64a55&)
